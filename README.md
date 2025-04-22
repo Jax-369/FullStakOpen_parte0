@@ -1,0 +1,1 @@
+# FullStakOpen_parte0
